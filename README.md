@@ -1,1 +1,1 @@
-# very-basic-resume
+https://imadityagolu.github.io/very-basic-resume/
